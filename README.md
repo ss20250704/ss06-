@@ -18,6 +18,6 @@
 
 总之，通过选择安全、合法且有信誉的平台观看“日本AV免费”，不仅能获得高质量的资源，还能保护个人信息和设备安全，享受更好的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss06- ）</span>
 
 
